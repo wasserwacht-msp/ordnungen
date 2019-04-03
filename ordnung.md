@@ -109,7 +109,7 @@ Der Kreis-Wasserwachtausschuss berät die Kreis-Wasserwachtleitung bei grundsät
 
 Unabhängig hiervon finden Sitzungen statt, wenn dies von mindestens der Hälfte der Ausschussmitglieder beantragt wird.
 
-Die Einberufungsfrist für den Ortsausschuss beträgt vier Wochen. Sie kann aus dringendem Anlass angemessen abgekürzt werden. Mit dem Tagungstermin ist die Tagesordnung mitzuteilen.
+Die Einberufungsfrist für den Kreis-Wasserwachtausschuss beträgt vier Wochen. Sie kann aus dringendem Anlass angemessen abgekürzt werden. Mit dem Tagungstermin ist die Tagesordnung mitzuteilen.
 
 (5) Über den Verlauf der Sitzung werden Niederschriften angefertigt, aus denen Tag, Teilnehmende sowie die wesentlichen Ergebnisse ersichtlich sind. Die Niederschriften werden den Angehörigen der Gemeinschaft zugänglich gemacht.
 

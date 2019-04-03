@@ -93,7 +93,7 @@ Die Kreis-Wasserwachtleitung oder die Mehrheit des Kreis-Wasserwachtausschusses 
 
 (3) Die Mitglieder wirken im Kreis-Wasserwachtausschusses an der Gestaltung und Weiterentwicklung der Kreis-Wasserwacht mit.
 
-Der Kreis-Wasserwachtausschuss berät die Kreis-Wasserwachtleitung bei grundsätzlichen Angelegenheiten des Ortsverbandes, insbesondere bei:
+Der Kreis-Wasserwachtausschuss berät die Kreis-Wasserwachtleitung bei grundsätzlichen Angelegenheiten der Kreis-Wasserwacht, insbesondere bei:
 
 * Allgemeinen Aspekten der Einsatz-/ Übungsvorbereitung,
 * Ausbildung und Ausstattung,

@@ -87,7 +87,7 @@ Ferner sollte die Kreis-Wasserwachtleitung bestimmen:
 
 * Mitglieder der Kreis-Wasserwachtleitung
 * berufene Führungskräfte bzw. Stellvertretung
-* Leiter der Ausbildungsgruppen bzw. Stellvertretung
+* Ausbildungsbeauftragte bzw. Stellvertretung
 
 Die Kreis-Wasserwachtleitung oder die Mehrheit des Kreis-Wasserwachtausschusses kann Gäste hinzuziehen. Ständiger Gast des Ausschusses ist der mit der Wasserwacht beauftragte hauptamtlich Mitarbeiter der Geschäftsstelle.
 
@@ -119,8 +119,23 @@ Will die Kreis-Wasserwachtleitung von einem Beratungsergebnis des Ausschusses ab
 
 (7) Der Kreis-Wasserwachtausschuss gibt sich eine Geschäftsordnung.
 
+## 3 Ausbildungsbeauftragte
 
-## 3 Änderungen, Verbindlichkeitsgrad
+(1) Ausbildungsbeauftragte leiten Ausbildungsgruppen.
+
+(2) Ausbildungsbeauftrate sollten eine Stellvertretung haben.
+
+(3) Ausbildungsbeauftrage sowie deren Stellvertretung werden von der Kreis-Wasserwachtleitung mit Aufgaben- und Wirkungsbereich berufen. 
+
+(4) Ausbildungsbeauftrage sowie deren Stellvertretung müssen vor deren Berufung die vorausgesetzen Kompetenzen als Ausbilder dieser Ausbildungsgruppe besitzen. Wer diese Voraussetzungen nicht besitzt kann vorläufig Berufen werden und muss innerhalb von 2 Jahren die geforderten Kompetenzen erwerben. Erneute Vorläufige Berufungen sind nicht möglich.
+
+(5) Der Berufungszeitraum für Ausbildungsbeuftragte beträgt 2 Jahre.
+
+(6) Ausbildungsbeauftragte bzw. deren Stellvertretung können zurücktreten. Ein Ausscheiden aus der Gemeinschaft sowie die Feststellung der Nichteignung, durch die Kreis-Wasserwachtleitung, bewirken zwingend einen sofortigen Rücktritt. 
+
+(6) Ausbildungsbeauftragte haben ihren Ausbildungsplan mit der Kreis-Wasserwachtleitung abzustimmen.
+
+## 4 Änderungen, Verbindlichkeitsgrad
 
 (1) Diese Ordnung kann nur durch eine Zweidrittelmehrheit bei einem Beschluss der Kreis-Wasserwachtversammlung geändert werden.
 

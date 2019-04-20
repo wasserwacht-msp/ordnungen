@@ -50,7 +50,7 @@ Die Tagesordnung setzt die Kreis-Wasserwachtleitung durch Beschluss fest.
 
 Die Kreis-Wasserwachtleitung leitet die Kreis-Wasserwacht und repräsentiert diese nach außen.
 
-(2) Die Mitglieder der Kreis-Wasserwachtleitung werden durch die Kreis-Wasserwachtversammlung gewählt. Dabei ist sicherzustellen, dass die verschiedenen Standorte der Kreis-Wasserwacht hinreichend vertreten sind. Näheres regelt die Wahlordnung.
+(2) Die Mitglieder der Kreis-Wasserwachtleitung werden durch die Kreis-Wasserwachtversammlung gewählt. Dabei sollten die verschiedenen Standorte der Kreis-Wasserwacht hinreichend vertreten sein. Näheres regelt die Wahlordnung.
 
 (3) Sollten alle Mitglieder der Kreis-Wasserwachtleitung zurücktreten, so ist durch den mit der Wasserwacht beauftragte hauptamtlich Mitarbeiter der Geschäftsstelle eine ordnungsgemäße Kreis-Wasserwachtversammlung einzuberufen. Der mit der Wasserwacht beauftragte hauptamtlich Mitarbeiter der Geschäftsstelle übernimmt übergangsweise die Leitung der Kreis-Wasserwacht.
 

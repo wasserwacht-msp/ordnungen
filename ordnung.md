@@ -125,13 +125,13 @@ Will die Kreis-Wasserwachtleitung von einem Beratungsergebnis des Ausschusses ab
 
 (2) Ausbildungsbeauftrate sollten eine Stellvertretung haben.
 
-(3) Ausbildungsbeauftrage sowie deren Stellvertretung werden von der Kreis-Wasserwachtleitung mit Aufgaben- und Wirkungsbereich berufen. 
+(3) Ausbildungsbeauftrage sowie deren Stellvertretung werden von der Kreis-Wasserwachtleitung mit Aufgaben- und Wirkungsbereich berufen.
 
-(4) Ausbildungsbeauftrage sowie deren Stellvertretung müssen vor deren Berufung die vorausgesetzen Kompetenzen als Ausbilder dieser Ausbildungsgruppe besitzen. Wer diese Voraussetzungen nicht besitzt kann vorläufig Berufen werden und muss innerhalb von 2 Jahren die geforderten Kompetenzen erwerben. Erneute Vorläufige Berufungen sind nicht möglich.
+(4) Ausbildungsbeauftrage sowie deren Stellvertretung müssen vor deren Berufung die vorausgesetzen Kompetenzen als Ausbilder dieser Ausbildungsgruppe besitzen. Wer diese Voraussetzungen nicht besitzt, kann vorläufig berufen werden und muss innerhalb von 2 Jahren die geforderten Kompetenzen erwerben. Erneute vorläufige Berufungen sind nicht möglich.
 
 (5) Der Berufungszeitraum für Ausbildungsbeuftragte beträgt 2 Jahre.
 
-(6) Ausbildungsbeauftragte bzw. deren Stellvertretung können zurücktreten. Ein Ausscheiden aus der Gemeinschaft sowie die Feststellung der Nichteignung, durch die Kreis-Wasserwachtleitung, bewirken zwingend einen sofortigen Rücktritt. 
+(6) Ausbildungsbeauftragte bzw. deren Stellvertretung können zurücktreten. Ein Ausscheiden aus der Gemeinschaft sowie die Feststellung der Nichteignung durch die Kreis-Wasserwachtleitung bewirken zwingend einen sofortigen Rücktritt.
 
 (6) Ausbildungsbeauftragte haben ihren Ausbildungsplan mit der Kreis-Wasserwachtleitung abzustimmen.
 
